@@ -1,2 +1,0 @@
-# carlosgargom.github.io
-Portfolio
